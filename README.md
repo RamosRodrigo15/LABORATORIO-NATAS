@@ -1,1 +1,35 @@
-# LABORATORIO---NATAS
+# LABORATORIO-NATAS
+gtVrDuiDfck831PqWsLEZy5gyDz1clto - natas0  
+ZluruAthQk7Q2MqmDeTiUij2ZvWy2mBi - natas1  
+sJIJNW6ucpu6HPZ1ZAchaDtwd7oGrD14 - natas2  
+Z9tkRkWmpt9Qr7XrR5jWRkgOU901swEZ - natas3  
+iX6IOfmpN7AYOQGPwtn3fXpbaJVJcHfq - natas4  
+aGoY4q2Dc6MgDq4oL4YtoKtyAg9PeHa1 - natas5  
+7z3hEENjQtflzgnT29q7wAvMNfZdh0i9 - natas6  
+DBfUBfqQG69KvJvJ1iAbMoIpwSNQ9bWe - natas7  
+W0mMhUcRRnG8dcghE4qvk3JA9lGt8nDl - natas8  
+nOpp1igQAkUzaI1GUUjzn1bFVj7xCNzu - natas9  
+U82q5TCMMQ9xuFoI3dYX61s7OZD9JKoK - natas10  
+EDXp0pS26wLKHZy1rDBPUZk0RKfLGIR3 - natas11  
+jmLTY0qiPZBbaKc9341cqPQZBJv7MQbY - natas12  
+Lg96M10TdfaPyVBkJdjymbllQ5L6qdl1 - natas13  
+AwWj0w5cvxrZiONgZ9J5stNVkmxdk39J - natas14  
+WaIHEacj63wnNIBROHeqi3p9t0m5nhmh - natas15  
+8Ps3H0GWbn5rd9S7GmAdgQNdkhPkq9cw - natas16  
+xvKIqDjy4OPv7wCRgDlmj0pFsCsDjhdP - natas17  
+4IwIrekcuZlA9OsjOkoUtwU6lhokCPYs - natas18  
+eofm3Wsshxc5bwtVnEuGIlr7ivb9KABF - natas19  
+IFekPyrQXftziDEsUr3x21sYuahypdgJ - natas20  
+chG9fbe1Tq2eWVMgjYYD1MsfIvN461kJ - natas21  
+D0vlad33nQF0Hz2EP255TP5wSW9ZsRSE - natas22  
+OsRmXFguozKpTZZ5X14zNO43379LZveg - natas23  
+GHF6X7YwACaYYssHVY05cFq83hRktl4c - natas24  
+oGgWAJ7zcGT28vYazGo4rkhOPDhBu34T - natas25  
+55TBjpPZUUJgVP5b3BnbG6ON9uDPVzCJ - natas26  
+JWwR438wkgTsNKBbcJoowyysdM82YjeF - natas27  
+airooCaiseiyee8he8xongien9euhe8b - natas28  
+wie9iexae0Daihohv8vuu3cei9wahf0e - natas29  
+hay7aecuungiuKaezuathuk9biin0pu1 - natas30  
+no1vohsheCaiv3ieH4em1ahchisainge - natas31  
+shoogeiGa2yee3de6Aex8uaXeech5eey - natas32  
+shu5ouSu6eicielahhae0mohd4ui5uig - natas33  
